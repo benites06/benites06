@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+-sou aluna do jk✨
+
+-gosto de jogar vôlei✨
+
+-meu passatempo é fotografar🔭 
+
 <!--
 **benites06/benites06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
