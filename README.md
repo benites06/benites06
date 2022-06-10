@@ -6,6 +6,8 @@
 
 -meu passatempo é fotografar🔭 
 
+![](https://br.pinterest.com/pin/760263980859452035/)
+
 <!--
 **benites06/benites06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
